@@ -1,0 +1,1 @@
+I, James Kohls, have read and understood the Spring CSE12 syllabus and Personal Responsibility Document. jkohls 3 April 2020
